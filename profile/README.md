@@ -4,3 +4,8 @@
 **서로의 추억**을 되새기며 **즐거운 순간**들을 함께 나누는 경험을 제공합니다."  
 ㅤ    
 ![ppt](https://github.com/user-attachments/assets/fe8c2b3e-e0ee-49bd-9ac7-b2f8e8d30515)
+
+오류문의
+develioer@gmail.com
+디코
+xixn2
